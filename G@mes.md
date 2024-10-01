@@ -9,3 +9,7 @@ https://local.garmanage.com/
 https://lichgames.s3.amazonaws.com/index.html
 https://tryhxrdbaconyt.my.canva.site/nothing
 Oregon trail ---> https://jamesfriend.com.au/pce-js/mecc/oregon-trail.html
+neal.fun--> https://neal.fun/
+geoguessr--> https://www.geoguessr.com/
+ mario 64 --> https://2pu896.csb.app/
+ 
