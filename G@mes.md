@@ -8,4 +8,4 @@ https://zatoga.nitrojade.com/games
 https://local.garmanage.com/
 https://lichgames.s3.amazonaws.com/index.html
 https://tryhxrdbaconyt.my.canva.site/nothing
-Oregon trail
+Oregon trail ---> https://jamesfriend.com.au/pce-js/mecc/oregon-trail.html
