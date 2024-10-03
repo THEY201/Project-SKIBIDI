@@ -14,4 +14,10 @@ geoguessr--> https://www.geoguessr.com/
  mario 64 --> https://2pu896.csb.app/
  https://rgukt-sklm-abccf.firebaseapp.com/taxa/taxa.html
  compute it --> https://rgukt-sklm-abccf.firebaseapp.com/taxa/taxa.html
+
  
+NEW 1v1.L0L
+
+https://boxfight.io/
+https://1v1.lol/
+https://justedit.lol/
