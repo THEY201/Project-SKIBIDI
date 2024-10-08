@@ -489,3 +489,73 @@ https://differentialequations.rootsbobcat.com
 
 
 G00GLE DOC PR0X3IS MIGHT NEED TO MAKE A NEW GOOGLE ACCOUNT ---> https://docs.google.com/document/d/1e_vXjV9bQGJIi9_q1bNgHPEVU0FxnJwTNq_6Q3jdSLw/edit?pli=1#heading=h.wxx8l6d3g79c
+
+
+Norepted | YT video watcher with history hiding
+https://norepted.playcode.io/ Note: click "Skip Intro"
+https://gzhhqm.csb.app/
+https://sites.google.com/view/n0repted/home
+https://codepen.io/weaF_z/full/RwJVywE
+
+Surfskip | web browser
+All newly added - 4/24
+https://splashtoyshop.com/
+https://1win-creator.com/
+https://lovedrink69.com/
+https://easyword.shop/
+https://surfskipp.shop/
+https://surfskip.shop/
+https://excelwizard.space/
+https://excelhub.space/
+https://surfskip.com/
+https://web.surfskip.com/en/room
+
+Interstellar | Games, Apps, and Proxy | Make sure to allow pop-ups and redirects
+https://gointerstellar.app
+
+Interstellar Discord (has more links w/dispenser): https://discord.gg/interstellar
+
+^ Back to top ^
+
+Astroid | Games, Emulators, Apps, and Proxy | To access, click ANY button on the "Math is fun" page
+2000+ Astroid Links (use unblocker if link restricted): https://pastebin.com/5pDP2SsS
+200 more Astroid Links (use unblocker if restricted): https://pastes.io/wkgmzaxgsk
+
+.to asteroid links
+https://inboxastroid.fr.to/
+https://49620.us.to/
+https://lhs.us.to/
+NEW https://education500.Fr.to/
+
+mooo.com links
+https://ofcoursethecowsays.mooo.com/
+https://addition.help.mooo.com/
+
+callmurk.cl lins
+NEW https://evemywifey.callmark.cl NEW https://jonnyeducation.callmark.cl NEW https://netflixandchill.callmark.cl/ NEW https://makemoneygetmoney.callmark.cl/ NEW https://jonnyeducation.callmark.cl/
+
+Misc. Astroid Links
+https://roid.strangled.net/
+https://mooo.pagostepeapulco.gob.mx/
+https://london.boooo.byethost18.com/
+https://education-center.panel-laboralcj.gob.mx/
+https://fast.jbones.com/
+https://he-just.farted.net/
+https://this-is-not-a.hackquest.com/
+https://astroid.jib.ar/worksheets/index.html
+https://mathematics.soon.it/
+https://division.danielwilkins.org/
+https://maths.timekeeper.ro/
+NEW https://bacademics.sanluix.org/
+NEW https://subtraction.nicolasi.com/
+NEW ﻿https://gmail.sitiodinamico.cl/
+NEW https://astroid.math-help.xyz/
+NEW https://todo.sites02.com/
+NEW https://decimals.mountzion.nsw.edu.au/worksheets/index.html
+NEW https://space.undo.it/
+NEW https://about.katieprallphotography.com/
+NEW https://home.guessthispic.com/
+NEW https://math-9483498234skib9-toi-le-tletsgogoofycr4zeyzjf-square.root.sx/
+NEW https://division.danielwilkins.org/
+NEW https://he-just.farted.net/
+NEW https://gojoo-astroid234-ev7e-freddy.vercel.app/
