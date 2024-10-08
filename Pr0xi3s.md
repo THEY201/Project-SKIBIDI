@@ -515,7 +515,6 @@ https://gointerstellar.app
 
 Interstellar Discord (has more links w/dispenser): https://discord.gg/interstellar
 
-^ Back to top ^
 
 Astroid | Games, Emulators, Apps, and Proxy | To access, click ANY button on the "Math is fun" page
 2000+ Astroid Links (use unblocker if link restricted): https://pastebin.com/5pDP2SsS
