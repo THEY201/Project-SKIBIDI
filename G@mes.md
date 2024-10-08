@@ -83,3 +83,22 @@ https://its-the.michael.myers-usa.com/
 NEW https://what.language-isthis.xn--72cg7bdd3bro6b3ab9c8btw4x.com/
 NEW https://the.studio.dcmusic.ca/
 NEW https://ohnoasweaty.fortnitebuilder.pro/
+
+
+
+
+
+
+
+
+Aquaria - Breath-taking underwater fantasy game. Winner of the Grand Prize at the 2007 Independent Games Festival.
+Doom 3 - Doom 3 GPL source code release.
+ID Software - Includes Doom, Quake, Wolfenstein and more.
+Jedi Academy - Jedi Academy source only, mirror of SourceForge from Raven Software.
+Jedi Outcast - Jedi Outcast source only, mirror of SourceForge from Raven Software.
+MaNGOS - Full featured World of Warcraft server.
+Miner Wars 2081 - For modders of Miner Wars 2081, a 6DOF action-survival space-shooter simulation-game set in the year 2081.
+OpenJK - Community maintained fork of Jedi Academy and Jedi Outcast development.
+Prince of Persia - Source code for the original Prince of Persia game that was written on the Apple II, in 6502 assembly language, between 1985-89.
+UFO RUN - Real time multiplayer with Nextpeer.
+System Shock - Source code for original System Shock game (PowerMac version), more readable fork available here.
