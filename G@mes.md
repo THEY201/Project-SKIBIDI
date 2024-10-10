@@ -110,7 +110,7 @@ NEW! https://form.contact.tafca.co.uk/
 NEW! https://chess.moves.tafca.co.uk/
 NEW! https://calendar.matches.tafca.co.uk/
 
-^ Back to top ^
+
 
 essexregional.org links
 https://form.contact.essexregional.org
@@ -130,7 +130,7 @@ https://rug.rugeleychessclub.co.uk/
 https://rugby.rugeleychessclub.co.uk/
 https://practice.chess.rugeleychessclub.co.uk/
 
-Misc.
+
 https://contact.zverovich.net/
 https://deals.youramys.com/
 https://buy.deleesportsmedicine.com/
