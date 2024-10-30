@@ -194,5 +194,30 @@ https://beta7.apktbg.com/demo
 
 
 
+G@ME L!NKS
+
+Brick Out: https://www.ducksters.com/games/brick_out.php
+Jumper Frog: https://www.ducksters.com/games/jumper_frog_game.php
+Snow Rider 3D: https://gg-opensocial.googleusercontent.com/gadgets/ifr?url=https://cdn.jsdelivr.net/gh/sk1bx/89574567@71f165531792ae450fe0a522a52ba4e827344de2/sr3d.xml
+Time Shooter: https://images-opensocial.googleusercontent.com/gadgets/ifr?url=https://cdn.jsdelivr.net/gh/sk1bx/version@0d8fb9c7430567ed0900902593eee6ba2ba8d297/ts3.xml
+Mario 64: https://2pu896.csb.app/
+Swerve: https://s3-eu-west-1.amazonaws.com/apps.playcanvas.com/VecAxR3e/index.html
+Idle Breakout: https://rawcdn.githack.com/3kh0/3kh0-Assets/master/idle-breakout/index.html
+Reflector: https://www.ducksters.com/games/reflector.php
+Sorcerer: https://www.ducksters.com/games/sorcerer.php
+GeoGuessr: https://www.geoguessr.com/
+Offline: https://rgukt-sklm-abccf.firebaseapp.com/taxa/taxa.html
+Tas: https://tasweb.org/games.html
+Welding: https://welding-game.web.app/#/
+Neon Flames: https://29a.ch/sandbox/2011/neonflames/
+Neal.fun: https://neal.fun/
+Nothing to Hide: https://nothing-to-hide-demo.s3.amazonaws.com/index.html
+Bad Time Simulator: https://kckarnige.is-a.dev/BadTimeRevamped/
+Marbleous: https://s3-eu-west-1.amazonaws.com/apps.playcanvas.com/HEoGi1Mb/index.html
+AIRMASH: https://altao.azureedge.net/
+Dadish 1: https://rawcdn.githack.com/mackeylol/copyofmasite/main/Games/dadish/index.html
+Compute it: https://compute-it.toxicode.fr/
+Oregon Trail: https://jamesfriend.com.au/pce-js/mecc/oregon-trail.html
+NEW Super Cook: https://www.supercook.com/#/desktop
 
 
